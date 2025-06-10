@@ -1,6 +1,16 @@
-![image](https://github.com/user-attachments/assets/8473544f-0c46-49b9-aae4-3b38312ab6de)
+<p align="center">
+    <img src="https://github.com/user-attachments/assets/f929ab2f-2a96-40f3-9039-33eab091127f" >
+    <img src="https://github.com/user-attachments/assets/4884e801-68d1-4dc6-87be-1e4b2931cbe4" >
+</p>
+<p align="center">
+<img src="https://github.com/user-attachments/assets/e89f6133-75a6-4ca4-896a-9c262fce5e77" >
+</p>
 
-oh also the esteemed crk spot. because unfortunately im a losr
-![image](https://github.com/user-attachments/assets/9b92d6af-11c3-4c7e-bab8-e551e0fd5556)
+<p align="center">
+  <img src="https://readme-typing-svg.demolab.com/?font=Caveat&size=36&duration=3500&pause=100&color=BCA3F7&center=true&vCenter=true&width=636&height=100&lines=remember+when+I+totally+pwned+you+on+sfoth;iiiii+love+buildermon+%5E_%5E;send+something+on+strawpage+%3A3">
+</p>
+<p align="center">
+    <img src="https://github.com/user-attachments/assets/f929ab2f-2a96-40f3-9039-33eab091127f" >
+    <img src="https://github.com/user-attachments/assets/4884e801-68d1-4dc6-87be-1e4b2931cbe4" >
+</p>
 
-being fr gladly take my spot if im not there, or if i AM there. we shall fight at dawn/j
